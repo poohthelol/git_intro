@@ -1,2 +1,1 @@
 Thatchapan Pianpucktr
-2
